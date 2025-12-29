@@ -1,4 +1,4 @@
-## 👤🆚🤖 👤🆚👤트링클 (TRINKLE)
+## 👤🆚🤖 👤🆚👤트링클 시리즈 (Trinkle series) 
 
 Trinkle = Triangle + Twinkle
 
